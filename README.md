@@ -9,7 +9,7 @@
 
 [Try CandyAI](https://t.mbsrv2.com/367665/6646?popUnder=true&aff_sub5=SF_006OG000004lmDN)
 
-## GirlFriendGPT
+## GirlfriendGPT
 
 [Try GirlFriendGPT](https://t.slext1.com/367665/10046/0?aff_sub5=SF_006OG000004lmDN])
 
