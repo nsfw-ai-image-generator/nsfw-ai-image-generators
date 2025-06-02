@@ -26,7 +26,7 @@
 * AI Live Phone Calls
 * NSFW AI Chatbot
 
-[Try CandyAI](https://t.mbsrv2.com/367665/6646?popUnder=true&aff_sub5=SF_006OG000004lmDN)
+[Try CandyAI](https://nsfwgen.xyz/candyai)
 
 ## GirlfriendGPT
 ![Image](https://nsfwgen.xyz/girlfriendgpt.jpg)
