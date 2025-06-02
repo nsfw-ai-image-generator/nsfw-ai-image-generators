@@ -34,7 +34,7 @@
 * NSFW AI Image Generator
 * NSFW AI Chatbot
 
-[Try GirlFriendGPT](https://t.slext1.com/367665/10046/0?aff_sub5=SF_006OG000004lmDN])
+[Try GirlFriendGPT](https://nsfwgen.xyz/girlfriendgpt)
 
 ## LUVR
 ![Image](https://nsfwgen.xyz/luvr.jpg)
@@ -42,4 +42,4 @@
 * Create your own AI Girlfriend
 * Daily Challenges
 
-[Try LUVR](https://t.slext1.com/367665/9313/37570?aff_sub5=SF_006OG000004lmDN)
+[Try LUVR](https://nsfwgen.xyz/luvr)
